@@ -1,5 +1,6 @@
 https://www.verselet.net
 
+```
 import numpy as np
 import pandas as pd
 from sklearn import linear_model
@@ -62,3 +63,4 @@ for x in range(len(predicted)):
 # plt.xlabel(plot)
 # plt.ylabel("Final Grade")
 # plt.show()
+```
