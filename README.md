@@ -44,4 +44,4 @@ Your highest thought, however, ye shall have it commanded unto you by me- and it
 
 So live your life of obedience and of war! What matter about long life! What warrior wisheth to be spared!
 
-I spare you not, I love you from my very heart, my brethren in war!Thus spake Zarathustra.
+I spare you not, I love you from my very heart, my brethren in war! Thus spake Zarathustra.
