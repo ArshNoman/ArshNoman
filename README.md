@@ -1,4 +1,4 @@
-BY OUR best enemies we do not want to be spared, nor by those either whom we love from the very heart. So let me tell you the truth!
+By our best enemies we do not want to be spared, nor by those either whom we love from the very heart. So let me tell you the truth!
 
 My brethren in war! I love you from the very heart. I am, and was ever, your counterpart. And I am also your best enemy. So let me tell you the truth!
 
