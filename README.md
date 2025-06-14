@@ -46,4 +46,5 @@ So live your life of obedience and of war! What matter about long life! What war
 
 I spare you not, I love you from my very heart, my brethren in war! 
 
+
 Thus spoke Zarathustra.
